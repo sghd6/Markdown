@@ -8,5 +8,8 @@ These films are an adrenaline rush of blood and terror, something to really get 
 Just in time for the holiday season, this Christmas-themed slasher is one of the most influential horror flicks out there. The film centers on a group of sorority sisters being stalked by a mysterious killer.
 The sound design and lighting make this a very tense experience with a unique winter aesthetic.
 This film originated the quote "The call is coming from inside the house" and the proposed sequel later became John Carpenter's *Halloween*. The film is also noted for its pro-choice themes, which was very controversial
-for the time. 
+for the time. This is a classic that paved the road for horror movies to come.
+
+
+## 
 
