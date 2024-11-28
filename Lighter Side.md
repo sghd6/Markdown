@@ -3,6 +3,7 @@ Films that ease uo on the blood and gore in service of telling an interesting st
 
 
 ##The Ring (2002)
+
 ![image](https://github.com/user-attachments/assets/611397db-baaf-478d-8082-1048a6afc694)
 
 
