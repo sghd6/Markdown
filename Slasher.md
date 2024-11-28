@@ -13,6 +13,7 @@ for the time. This is a classic that paved the road for horror movies to come.
 
 ## Hellraiser (2022)
 
+![poster for Hellraiser]!
 I'm a cynic when it comes to remakes of classic horror movies. However, this remake does its own thing and that greatly benefits it. The characters in this movie are all sympathetic and donwhat they can to escape their unfair fates. The blood is phenominal and the mechanics of the puzzle box feel well-defined while still leaving room to speculate. I think this is a great remake and an example of what can be done to spice up a classic.
 
 ## You're Next
