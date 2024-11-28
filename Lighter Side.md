@@ -13,4 +13,5 @@ This thriller follows three girls kidnapped by a man with multiple personality d
 
 ##It Follows
 
-This unique film follows a young woman being pursued by a demonic entity that slowly walks towards her. This film uses the gimmick to its full extent, with the characters strategizin how to out run and beat th
+This unique film follows a young woman being pursued by a demonic entity that slowly walks towards her. This film uses the gimmick to its full extent, with the characters strategizin how to out run and beat the creature. The creeping camerawork matches how the creature moves and operates. *It Follows* is a great display of a somple
+concept being used to carry a narrative.
