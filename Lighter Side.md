@@ -9,3 +9,8 @@ This American remake tells the story of a mysterious video tape that kills peopl
 ##Split
 
 This thriller follows three girls kidnapped by a man with multiple personality disorder. James MacAvoy gives a very intense performance as the film's antagonist. There is a good build-up to the film's climax that blends well with the main characters tragic backstory. I follow M Night Shamalan's film career and can honestly say this is one of his best. 
+
+
+##It Follows
+
+This unique film follows a young woman being pursued by a demonic entity that slowly walks towards her. This film uses the gimmick to its full extent, with the characters strategizin how to out run and beat th
