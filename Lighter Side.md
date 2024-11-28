@@ -3,7 +3,8 @@ Films that ease uo on the blood and gore in service of telling an interesting st
 
 
 ##The Ring (2002)
-![The Ring Poster](https://github.com/user-attachments/assets/bcbb05cf-4c14-4be2-b9e2-8d140cb08212)
+![image](https://github.com/user-attachments/assets/611397db-baaf-478d-8082-1048a6afc694)
+
 
 This American remake tells the story of a mysterious videotape that kills people seven days after watching it. This film is a classic for a reason. Its sickening lighting, expert sound design, and understandable characters craft a great mystery to keep the viewer engaged. The pacing is done really well in my opinion, tying in the ticking-clock element that plagues the main character. If you never got the chance to check this one out, I recommend that you do so.
 
